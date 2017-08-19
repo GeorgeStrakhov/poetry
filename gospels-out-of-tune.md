@@ -1,0 +1,138 @@
+# Gospels out of tune 
+
+## Epigraph
+
+Since I am coming to that holy room,
+Where, with thy choir of saints for evermore,
+I shall be made thy music; as I come
+I tune the instrument here at the door,
+And what I must do then, think here before.
+
+- John Donne
+
+-------
+
+## My Gardener
+
+My Gardener, can you show yourself to me?
+Your poor tree is thirsty for your sight.
+How can I bloom, if I have always been
+Pale, growing in your shadows, not your light?
+
+My Gardener, can you hide yourself from me?
+My leaves and flowers hurt, but I can't turn
+Away, your light is way too bright to see.
+How can I blossom if my flowers burn?
+
+Hence they are one, your shadow and your light,
+Your everpresence hidden in plain sight.
+
+-------
+
+## Make-believe
+
+I’ll make-believe that I am but a child
+Who wanders freely in the land of dreams
+Where all-there-is comes out at him at once
+And paves the way for all-that-there-can-be
+And tickles all his senses… Just a child,
+Who looks the world directly in the eye
+And grasps all things, but doesn’t call them names
+Or put them into boxes, where they die
+Without the rest of things to rub against.
+All times and places are to him alike,
+Mind never still, heart always running wild,
+He comes and goes away, as he may please.
+I'll make-believe that I am just a child,
+Who hasn’t yet forgotten who he is.
+But it won't last. Too soon the rising tides
+Will come and hide his primal soul beneath
+The clouds of doubt and waves of second thoughts.
+My child will grow. And with him - his distress.
+His mind now circling in the land of ghosts
+And fears that never seem to leave his chest...
+He’ll push on through, though puzzled. Ever since
+This life will be for him a lonely quest
+That goes too quickly, but is never done.
+He’ll be an old man soon with broken thoughts,
+Who tapes them with the memories long gone.
+And watches as they slowly fade away,
+Except one thought that always seems to stay,
+Yet he is never quite so sure which one.
+And in the end when all he’s got is past
+My poor child shall see his final dream,
+A dream more vivid than he's ever seen,
+Where hopes and fears let go of him at last,
+Where he becomes what he has always been
+And always will be. Amen! Quite a life.
+As good as one can hope for in this land,
+Where everything that has an end is pointless,
+Yet everything that has a point must end.
+I’ll stop here, there is nowhere else to go.
+Where all ends meet I’ll take my final stand
+And hold my breath… but how long can I keep it?
+For what’s alive cannot be still for long...
+There’s nothing here to lose, still less to gain,
+I shall forget myself and start again.
+
+-------
+
+## Who is that?
+
+Who is that whistling ten thousand tunes, not getting out of breath?
+Who is that blowing on ten thousand things, so each can be itself?
+Who is that dancing in your twinkling eye, each time you smile at me?
+Do you feel, Father, dear Father, how much I wish that I could see?
+
+Who is that fighting in ten thousand battles, knowing not what for?
+Who is that jumping out the windows, right next to the open doors?
+Who is that riding on ten thousand waves in San Francisco bay?
+Do you feel, Father, dear Father, how much I wish that I could say?
+
+Who is that howling with ten thousand winds, but never blows away?
+Who is that looking for ten thousand needles in one straw of hay?
+Who is that flowing with the streams that always go from low to low?
+Do you feel, Father, dear Father, how much I wish that I could know?
+
+-------
+
+## I'll be there
+
+When you wander through my forests,
+Lost inside their endless maze,
+When you feel so fixed upon you
+Heaven's cold and careless gaze,
+When you pray so hard, but no one
+Seems around to hear your prayer,
+Lift the stone and you shall find me,
+Cleave the wood and I'll be there.
+
+If you sail across my oceans,
+Knowing not which way you're bound,
+If you fight against your brothers,
+Caring not where friends be found,
+If your troubles seem like mountains,
+You can move them, should you dare,
+Break your bread and you shall find me,
+Drink your wine and I'll be there.
+
+-------
+
+## Play me
+
+Silence, be my bride!
+Flow into my heart,
+Make me come alive,
+Till death do us part.
+In your comsic choir,
+I'm just a voice,
+Body made of strings
+Of the Universe.
+Play me to the end,
+Till there's me no more,
+So another voice
+In my place can grow.
+Play with all your might,
+So I can be heard...
+Play with all your care,
+So it doesn't hurt.
