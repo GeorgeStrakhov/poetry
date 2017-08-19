@@ -1,3 +1,3 @@
 # Poetry
 
-* [Gospels out of tune](gospels-out-of-tune.md)
+* [Gospels out of tune](gospels-out-of-tune.txt)
