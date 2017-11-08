@@ -1,4 +1,4 @@
-# Gospels out of tune 
+# Gospels out of tune
 
 ## Epigraph
 
@@ -21,7 +21,7 @@ Pale, growing in your shadows, not your light?
 
 My Gardener, can you hide yourself from me?
 My leaves and flowers hurt, but I can't turn
-Away, your light is way too bright to see.
+Away, your light is way too bright for me to see.
 How can I blossom if my flowers burn?
 
 Hence they are one, your shadow and your light,
@@ -112,7 +112,7 @@ Knowing not which way you're bound,
 If you fight against your brothers,
 Caring not where friends be found,
 If your troubles seem like mountains,
-You can move them, should you dare,
+You can move them, should you dare
 Break your bread and you shall find me,
 Drink your wine and I'll be there.
 
@@ -133,6 +133,6 @@ Till there's me no more,
 So another voice
 In my place can grow.
 Play with all your might,
-So I can be heard...
+So I can be heard.
 Play with all your care,
 So it doesn't hurt.
